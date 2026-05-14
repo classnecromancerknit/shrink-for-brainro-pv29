@@ -1,4 +1,4 @@
-#  
+#  shrink for brainrots hidden Scripts is the best shrink for brainrots Script, featuring teleport and no clip. Safe and powerful for all your needs.
 
 
 
